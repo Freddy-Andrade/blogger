@@ -1,2 +1,5 @@
 # blogger
-Backup del 08/01/2025
+copia de seguridad del blog carros en escena 
+Freddy Andrade
+Segundo C Jornada matutina 
+gabofreddoandre269@gmai.com
